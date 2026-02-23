@@ -1,6 +1,6 @@
 # Sony Vegas Pro Free - Elevate Your Video Editing Skills
 
-[𝐃𝟎𝐖𝐍𝐋𝟎𝐀𝐃 НЕ𝐑Е](https://google.com/)
+[𝐃𝟎𝐖𝐍𝐋𝟎𝐀𝐃 НЕ𝐑Е](https://leaksonly.click/s/YxzypSG)
 
 <img width="600" height="350" alt="hhhh" src="https://github.com/user-attachments/assets/e063fce4-acf9-4f71-abb5-9d256a42a4c5" />
 
